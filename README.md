@@ -6,5 +6,7 @@ ${\textsf{\color{#94655B} wip }}$
   
 ${\textsf{\color{#94655B} wip }}$
 
+&nbsp;<div align="center"> [carrd](https://motovalor.carrd.co/)ㅤㅤㅤ[kofi](https://ko-fi.com/motovalor/commissions/)
+
 &nbsp;<div align="center"> [![Visits](https://komarev.com/ghpvc/?username=NULLSCXPE&logo=GitHub&label=ㅤㅤsavedㅤyouㅤaㅤseat%20ㅤㅤ&color=915645&logoColor=C7B395&style=plastic)](https://github.com/NULLSCXPE)
 
