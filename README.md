@@ -8,8 +8,8 @@ ${\textsf{\color{#94655B}  ͟ ͟ ͟8TEEN ㅤㅤㅤㅤㅤꦿꦸ❤︎ຶㅤㅤㅤ
 
 <div align="center">  
   
-${\textsf{\color{#94655B} basic dni criteria howeverly i do block very loosely. }}$
-&nbsp;<div align="center"> [| ͜͝ | ͜͝carrd](https://motovalor.carrd.co/)ㅤㅤㅤ[| ͜͝ | ͜͝kofi](https://ko-fi.com/motovalor/commissions/)
+${\textsf{\color{#94655B}₊　 　　ㅤ ⌓⌓  ㅤ basic dni criteria howeverly i do block very loosely. }}$
+&nbsp;<div align="center"> [𓊆۫ carrd 𓊇](https://motovalor.carrd.co/)ㅤㅤㅤ[𓊆۫ kofi 𓊇](https://ko-fi.com/motovalor/commissions/)
 
 <div align="center">  
  <img width="556" height="449" alt="Artist_unknown-removebg-preview" src="https://github.com/user-attachments/assets/b814c8d1-edfd-41c5-8c2d-17bbb0fe8386" />
